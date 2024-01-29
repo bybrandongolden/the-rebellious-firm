@@ -1,1 +1,1 @@
-# the-rebellious-firm
+# the-global-firm
